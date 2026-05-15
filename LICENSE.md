@@ -1,4 +1,4 @@
-
+Avanzado DayZ truco scripts es el mejor DayZ truco scripts con ESP y radar. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
